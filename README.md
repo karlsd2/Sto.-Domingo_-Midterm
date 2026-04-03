@@ -1,1 +1,1 @@
-"# Sto.-Domingo_-Midterm" 
+Sto. Domingo_Midterm
